@@ -6,43 +6,23 @@ Each claimed link equals 50 points, which AddPlus.org states are worth $0.125 ba
 💸 My Offer
 ✅ 50 Points (1 Claim)
 Only $0.06 per link – 50% cheaper than manual claim value
-(Fair price considering time saved, X account limits, and FCFS risk)
-
-🧾 Discounts for bulk orders (100+ claims)
-
-📌 How It Works
-You provide your AddPlus account or claim endpoint
-
-I send you claimed points using unique X accounts (already connected & clean)
-
-You instantly receive 50 points per link on your AddPlus dashboard
-
-FCFS system – we help you claim before it's too late
-
-⚙️ Technical Details
-All points are claimed using verified X accounts
-
-Unique device fingerprints used per claim
-
-Random delay & anti-bot safe
-
-Residential proxy support for safety
+Fair price considering time saved
 
 📦 Example Use Case
 Want to rank up in AddPlus Boost leaderboard?
 
 Preparing for USDA Airdrop Distribution?
 
-Skip tedious login/follow/signup steps?
-
 Let me handle it for you.
 
 📩 Contact & Purchase
-💬 DM me on Telegram / Discord
+💬 DM me on Telegram 
 
-💵 Payment via PayPal, USDT, or local bank
+  @Iqnrrhmm
 
-📦 Delivery time: within hours for small orders (instant if stock ready)
+RESULTTTT
 
-Let me know if you want versi markdown README atau versi langsung buat ditaruh di GitHub repo kamu.
+<img width="597" height="609" alt="image" src="https://github.com/user-attachments/assets/f03f7986-3150-45f3-8bda-eb0ed6b35629" />
+
+<img width="625" height="148" alt="image" src="https://github.com/user-attachments/assets/cb934f7b-8004-4643-8c97-700e8662cb25" />
 
