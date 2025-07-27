@@ -24,5 +24,6 @@ RESULTTTT
 
 <img width="597" height="609" alt="image" src="https://github.com/user-attachments/assets/f03f7986-3150-45f3-8bda-eb0ed6b35629" />
 
-<img width="625" height="148" alt="image" src="https://github.com/user-attachments/assets/cb934f7b-8004-4643-8c97-700e8662cb25" />
+<img width="776" height="168" alt="image" src="https://github.com/user-attachments/assets/be3191ae-d2a4-4f43-a6c6-79b1f0e11e5b" />
+
 
